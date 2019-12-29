@@ -1,0 +1,2 @@
+# simoking
+Earn money
